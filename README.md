@@ -10,6 +10,6 @@
 - **Sistemas Operativos**: Linux  
 
 ## 📫 Contacto  
-📍 [Tu LinkedIn o correo aquí]  
+📍 atrurorubio30@hotmail.com
 📂 [Tu portafolio o sitio web aquí]  
 
