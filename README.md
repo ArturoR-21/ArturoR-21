@@ -10,6 +10,4 @@
 - **Sistemas Operativos**: Linux  
 
 ## 📫 Contacto  
-📍 atrurorubio30@hotmail.com
-📂 [Tu portafolio o sitio web aquí]  
-
+📍arubiot.dev@gmail.com
